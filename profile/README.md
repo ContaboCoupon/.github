@@ -239,7 +239,7 @@ If you have questions about Contabo's pricing model or need help evaluating whet
 **Noman Savings** is a cloud infrastructure analyst and ethical affiliate marketer specializing in transparent hosting reviews. With hands-on experience testing VPS providers across 15+ global regions, he prioritizes factual accuracy over clickbait. His mission: help users navigate hosting decisions with confidence, clarity, and zero misinformation.  
 
 🔗 **Connect with Noman:**  
-[LinkedIn](https://www.linkedin.com/in/nomansavings/) | [Facebook](https://www.facebook.com/NomanSavings/) | [X](https://x.com/NomanSavings)  
+[LinkedIn](https://www.linkedin.com/in/nomansavings/) | [X](https://x.com/NomanSavings)  
 
 
 
