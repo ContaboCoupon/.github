@@ -1,5 +1,8 @@
 Affiliate Disclosure: This Contabo coupon page may contain affiliate links. If you use our links to make a purchase, we may earn a small commission at no extra cost to you.
 
+<img width="1504" height="358" alt="contabo-coupon" src="https://github.com/user-attachments/assets/12a14b3a-cbb6-41f4-a1f0-821683dca294" />
+
+
 > 🎯 **[GET THE VERIFIED CONTABO VPS 30 SP DEAL →](https://www.couponcodes.workers.dev/contabo/)**  
 > *Official promotional pricing auto-applied • No coupon code needed • Verified June 24, 2026*
 
